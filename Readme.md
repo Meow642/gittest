@@ -1,2 +1,2 @@
 I love MeowMeow!
-Very very love!
+Very very suki!
